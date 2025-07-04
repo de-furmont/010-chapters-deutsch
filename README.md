@@ -4,9 +4,9 @@
 
 Kauf dir alles was du brauchst um erfolgreicher und schneller in Chapters zu sein!
 
-## [KLICKEN SIE HIER](https://lokiesguide.store/de/d1fa16f/?s=chaptersgit)
+## [KLICKEN SIE HIER](https://chapters-helper.netlify.app/)
 
-## [KLICKEN SIE HIER](https://lokiesguide.store/de/d1fa16f/?s=chaptersgit)
+## [KLICKEN SIE HIER](https://chapters-helper.netlify.app/)
 
 ### Der beste Chapters Hack
 
